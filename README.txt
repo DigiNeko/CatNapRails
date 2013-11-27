@@ -1,1 +1,2 @@
-Hello Every Nyan again~
+Hello Every Nyan~
+Sometimes I wish I were a bird.
